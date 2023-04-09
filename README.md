@@ -1,5 +1,6 @@
 ### Hi there :pray:
 
+                                                            :india: , :canada: , :us:
 
 
 - 🔭 I’m currently working as a ML egineer intern at Omdena.
